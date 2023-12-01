@@ -3,6 +3,7 @@ Certified Shopify Web Design & Development Expert - 12+ year's EXP $55.00/hr
 🙋 I am a Certified Shopify Expert/Partner, A "TOP RATED" Upwork freelancer, have completed more than 11,192 Upwork hours with 400K+ USD earning. I have more than 12+ years of experience as a full stack Shopify eCommerce stores designer and developer.
 
 My main strengths are:
+
 ➳ Store Design
 ➳ PSD to Shopify
 ➳ Shopify Custom Theme Development and Design
@@ -17,6 +18,7 @@ I have worked in many sectors like Fashion and Clothing, Food Industry, Health a
 I have worked with almost all the official Shopify approved themes like, the latest Shopify OS 2.0 theme DAWN and the upgraded Prestige, Impulse etc. themes, and Turbo, Flex, Parallax, Retina, Debut, Brooklyn etc. themes.
 
 Also, I have worked with most of the popular Shopify apps like:
+
 ✅ Recharge app
 ✅ MailChimp
 ✅ Coupon Carrier
@@ -37,6 +39,7 @@ Also, I have worked with most of the popular Shopify apps like:
 ✅ Langify etc.
 
 I am also expert to work with following supporting technical skills also:
+
 ➳ Design: PhotoShop, Figma, Adobe XD
 ➳ Web Script: HTML5, CSS3, Responsive design
 ➳ Web Tools: jQuery, AJAX
