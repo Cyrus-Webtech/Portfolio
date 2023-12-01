@@ -1,5 +1,5 @@
-Certified Shopify Web Design & Development Expert - 12+ year's EXP
-$55.00/hr
+Certified Shopify Web Design & Development Expert - 12+ year's EXP $55.00/hr
+
 🙋 I am a Certified Shopify Expert/Partner, A "TOP RATED" Upwork freelancer, have completed more than 11,192 Upwork hours with 400K+ USD earning. I have more than 12+ years of experience as a full stack Shopify eCommerce stores designer and developer.
 
 My main strengths are:
